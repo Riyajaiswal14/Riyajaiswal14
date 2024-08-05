@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **riyajaiswal.1424@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1IkJLwUf7Kc4UeSM8mIaa8ha5kfLag0yr/view?usp=sharing](https://drive.google.com/file/d/1IkJLwUf7Kc4UeSM8mIaa8ha5kfLag0yr/view?usp=sharing)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1mOWjmTanZnrBidgXvxvOnBM9m-Yk-DF2/view?usp=sharing](https://drive.google.com/file/d/1mOWjmTanZnrBidgXvxvOnBM9m-Yk-DF2/view?usp=sharing)
 
 - ⚡ Fun fact **I think I'm funny**
 
